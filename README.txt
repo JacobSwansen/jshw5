@@ -1,2 +1,0 @@
-Jacob Swansen
-Indianapolis Colts
